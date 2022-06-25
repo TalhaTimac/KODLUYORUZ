@@ -1,0 +1,2 @@
+# KODLUYORUZ
+www.patika.dev 
